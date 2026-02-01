@@ -1,0 +1,2 @@
+# sakit
+bau
